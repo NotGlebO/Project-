@@ -6,3 +6,6 @@
 
 # Наш сайт:
 https://zkns1at26.ukit.me/
+
+# Кто за что отвечал?
+https://miro.com/welcomeonboard/SjRzU3ltMFBhZkZYUzZPVmYxbm9BcU5tOHJ1NG...
